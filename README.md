@@ -3,7 +3,6 @@
 
 关于本书的制作缘由，是因为我在图书馆中看到这本书觉得很好看，很想让家里的妹妹也看到，但是网上只能找到英文原版的pdf，妹妹的英语读起来还是有点吃力，虽然我还是觉得直接读英文的更能提高她的英语能力，所以就自己一张张扫描下来制成了pdf，特此分享在网上，让更多暂时不能获得实体书的小孩子看到这本治愈的书。
 
-(从这个开始要锻炼自己的英语能力，不能一直是horrible)
 # About this scanning edition
 _The little world of liz climo_ in Chinese language
 About the copyright of this DIY scanning book, I do not want to be stuck in the dispute of torts. If there is no business transaction, I think, it will be legal to share this one with all net friends. Think of it this way for a moment. 
